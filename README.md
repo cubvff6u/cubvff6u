@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @cubvff6u
+- 👋 Hi, I’m cubvff6u
 - ✨ My real name: Stanislav Eliseev
 - 👀 I’m interested in that
 
